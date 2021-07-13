@@ -1,0 +1,2 @@
+# genetika4
+genetika
